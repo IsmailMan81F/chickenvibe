@@ -1,1 +1,1 @@
-Offericial website for CHICKEN VIBE fast food.
+Official website for CHICKEN VIBE fast food.
